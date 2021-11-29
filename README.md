@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Michał (aka. Pazdikan). This account is meant for hosting my website 🤷.
+- My main account: @pazdikan.
+- Don't contribute to anything on this account. It's just my personal websites.
